@@ -1,9 +1,7 @@
 # CVV-Vazquez-Ortega-Juan-Pablo-Mateo-
-# Mateo [Tu Apellido]
 
 Leon Guanajuato, México  
 1111111@gmail.com | 📞 +52 111111111  
-(https://linkedin.com/in/tuusuario) | 
 
 
 
